@@ -8,16 +8,20 @@ SOUYRI François-Pierre. Histoire du Japon médiéval Le monde à l'envers. édi
 cultura
 
 HALL Stuart. Identités et cultures Politiques des cultural studies. Trad.JAQUET Christophe. Edit.CERVULLE Maxime. Paris : Editions Amsterdam, 2007.
+
 SCHILLER Herbert I. Communication and Cultural Domination. White Plains : International Arts and Sciences Press, Inc. 1976.
+
 HEBDIGE Dick. Subculture The Meaning of Style. Londres : Routledge, 1979. (New accents)
 
 
 ibridazione
 
 
+
 media
 
 LENT John A. The Asian Film Industry. 1er édition. Austin : University of Texas Press, 1990. (Congress Catalog of Film studies ; 89-51958)
+
 FISKE John & HARTLEY John. Reading Television. 2e édition. Londres : Routledge, 2003. (New accents)
 
 
