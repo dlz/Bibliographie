@@ -1,8 +1,11 @@
 bibliografia
 ============
-armonia 
+armonia
 
-SOUYRI François-Pierre. Histoire du Japon médiéval Le monde à l'envers. édition revue. Paris : Perrin, 2013. (collection tempus ; 511)
+
+SOUYRI Pierre-François. Histoire du Japon médiéval Le monde à l'envers. édition revue. Paris : Perrin, 2013. (collection tempus ; 511)
+
+Gaston Bachelard. L’air et les songes. Essai sur l’imagination du mouvement. 17e édition. Paris: Librairie José Corti, 1943 [1990]. Disponible sur : http://classiques.uqac.ca/classiques/bachelard_gaston/air_et_les_songes/air_et_les_songes.pdf [2013]
 
 
 cultura
