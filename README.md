@@ -8,9 +8,11 @@ SOUYRI Pierre-François. Histoire du Japon médiéval Le monde à l'envers. édi
 
 MORE Thomas. L’Utopie. Trad. STOUVENEL Victor. Édition électronique. Paris : Paulin, 1842. Disponible sur : http://fr.wikisource.org/wiki/L%E2%80%99Utopie [2013]
 
-BACHELARD Gaston. L’air et les songes. Essai sur l’imagination du mouvement. 17e édition. Paris: Librairie José Corti, 1943 [1990]. Disponible sur : http://classiques.uqac.ca/classiques/bachelard_gaston/air_et_les_songes/air_et_les_songes.pdf [2013]
+BACHELARD Gaston. L’Air et les songes. Essai sur l’imagination du mouvement. 17e édition. Paris: Librairie José Corti, 1943 [1990]. Disponible sur : http://classiques.uqac.ca/classiques/bachelard_gaston/air_et_les_songes/air_et_les_songes.pdf [2013]
 
+ROUSSEAU Jean-Jacques. Les Rêveries du promeneur solitaire. Lausanne : François Grasset & Comp., 1782. Disponible sur : http://www.litteratureaudio.com/livre-audio-gratuit-mp3/rousseau-jean-jacques-les-reveries-du-promeneur-solitaire.html [2009]
 
+DE SAINT-PIERRE Jacques-Henri Bernardin. Paul et Virginie. édition in-18. Paris : L'imprimerie de Monsieur M. DCC. LXXXIX., 1978. Disponible sur : ftp://ftp.bnf.fr/010/N0103247_PDF_1_-1DM.pdf
 
 cultura
 
