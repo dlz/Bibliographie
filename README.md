@@ -4,6 +4,8 @@ armonia
 
 Le mythe de l’Arcadie
 
+saint D'ASSISE François. (Fondateur de l'ordre des Franciscains) présence de dieu, paroles dans la nature. 
+
 SOUYRI Pierre-François. Histoire du Japon médiéval Le monde à l'envers. édition revue. Paris : Perrin, 2013. (collection tempus ; 511)
 
 MORE Thomas. L’Utopie. Trad. STOUVENEL Victor. Édition électronique. Paris : Paulin, 1842. Disponible sur : http://fr.wikisource.org/wiki/L%E2%80%99Utopie [2013]
