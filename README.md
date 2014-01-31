@@ -8,7 +8,7 @@ pastourelle http://www.larousse.fr/encyclopedie/musdico/pastourelle/169495
 
 saint D'ASSISE François. (Fondateur de l'ordre des Franciscains) présence de dieu, paroles dans la nature. http://www.larousse.fr/encyclopedie/personnage/saint_Fran%C3%A7ois_dAssise/120177
 
-D'URFÉ Honoré. L'Astrée. Paris : M. DC. XII., 1607 1610 1619 1627 1628. Disponible sur : http://gallica.bnf.fr/ark:/12148/bpt6k1191689
+D'URFÉ Honoré. L'Astrée. Paris : Toussaincts du Bray, 1612. Disponible sur : http://gallica.bnf.fr/ark:/12148/bpt6k1191689
 
 MORE Thomas. L’Utopie. Trad. STOUVENEL Victor. Édition électronique. Paris : Paulin, 1842. Disponible sur : http://fr.wikisource.org/wiki/L%E2%80%99Utopie [2013]
 
@@ -16,7 +16,7 @@ BACHELARD Gaston. L’Air et les songes. Essai sur l’imagination du mouvement.
 
 ROUSSEAU Jean-Jacques. Les Rêveries du promeneur solitaire. Lausanne : François Grasset & Comp., 1782. Disponible sur : http://www.litteratureaudio.com/livre-audio-gratuit-mp3/rousseau-jean-jacques-les-reveries-du-promeneur-solitaire.html [2009]
 
-DE SAINT-PIERRE Jacques-Henri Bernardin. Paul et Virginie. édition in-18. Paris : L'imprimerie de Monsieur M. DCC. LXXXIX., 1978. Disponible sur : ftp://ftp.bnf.fr/010/N0103247_PDF_1_-1DM.pdf
+DE SAINT-PIERRE Jacques-Henri Bernardin. Paul et Virginie. édition in-18. Paris : L'imprimerie de Monsieur 1789 [1978]. Disponible sur : ftp://ftp.bnf.fr/010/N0103247_PDF_1_-1DM.pdf
 
 SOUYRI Pierre-François. Histoire du Japon médiéval Le monde à l'envers. édition revue. Paris : Perrin, 2013. (collection tempus ; 511)
 
