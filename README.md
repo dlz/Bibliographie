@@ -42,6 +42,11 @@ LENT John A. The Asian Film Industry. 1er édition. Austin : University of Texas
 FISKE John & HARTLEY John. Reading Television. 2e édition. Londres : Routledge, 2003. (New accents)
 
 
+metodo
+
+SOUCHON Michel. Petit écran grand public. 1ère Edition. Paris : Institut National de l'Audiovisuel, 1980. (La Documentation Française) 
+
+
 
 filmografia
 ============
