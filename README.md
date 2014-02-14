@@ -30,6 +30,8 @@ SCHILLER Herbert I. Communication and Cultural Domination. White Plains : Intern
 
 HEBDIGE Dick. Subculture The Meaning of Style. Londres : Routledge, 1979. (New accents)
 
+Catherine Vidal. Hommes, femmes, avons-nous le même cerveau ? Paris : Pommier, 2007.
+
 
 ibridazione
 
