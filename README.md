@@ -41,6 +41,8 @@ LENT John A. The Asian Film Industry. 1er édition. Austin : University of Texas
 
 FISKE John & HARTLEY John. Reading Television. 2e édition. Londres : Routledge, 2003. (New accents)
 
+Duden français Dictionnaire en image. Bibliographisches Institut & Librairie Marcel Didier, 1962.
+
 
 metodo
 
