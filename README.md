@@ -46,6 +46,9 @@ FISKE John & HARTLEY John. Reading Television. 2e édition. Londres : Routledge,
 Duden français Dictionnaire en image. Bibliographisches Institut & Librairie Marcel Didier, 1962.
 
 
+MCCARTHY Anna. Ambient Television: Visual Culture and Public Space. Durham : Duke University Press, 2001.
+
+
 metodo
 
 SOUCHON Michel. Petit écran grand public. 1ère Edition. Paris : Institut National de l'Audiovisuel, 1980. (La Documentation Française) 
