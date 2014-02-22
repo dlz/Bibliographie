@@ -50,12 +50,21 @@ Duden français Dictionnaire en image. Bibliographisches Institut & Librairie Ma
 
 MCCARTHY Anna. Ambient Television: Visual Culture and Public Space. Durham : Duke University Press, 2001.
 
-DAYAN Daniel, KATZ Elihu. La Télévision cérémonielle. Paris : Presses Universitaires de France, 1996. (La Politique Éclatée)
+DAYAN Daniel & KATZ Elihu. La Télévision cérémonielle. Paris : Presses Universitaires de France, 1996. (La Politique Éclatée)
+
+BRETON Philippe & PROULX Serge. L'explosion de la communication Introduction aux théories et aux pratiques de la communication. Paris : La Découverte, 2006. (Grands Repères)
 
 
 metodo
 
 SOUCHON Michel. Petit écran grand public. 1ère Edition. Paris : Institut National de l'Audiovisuel, 1980. (La Documentation Française) 
+
+
+tecnologia
+
+ELLUL Jacques. La technique ou l'enjeu du siècle. 1ère Edition. Paris : Armand Colin, 1954. (Sciences politiques) 
+ELLUL Jacques. La technique ou l'enjeu du siècle. 3e Edition. Paris : Economica, 2008. (Classiques des sciences sociales)
+
 
 
 
