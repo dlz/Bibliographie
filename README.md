@@ -32,7 +32,7 @@ HEBDIGE Dick. Subculture The Meaning of Style. Londres : Routledge, 1979. (New a
 
 VIDAL Catherine. Hommes, femmes, avons-nous le même cerveau ? Paris : Pommier, 2007.
 
-Maisonneuve Jean. Les Rituels. Paris ： PUF, 1988. (Que Sais-Je ; 122) http://www.persee.fr/web/revues/home/prescript/article/assr_0335-5985_1989_num_67_2_1390_t1_0305_0000_2
+Maisonneuve Jean. Les Rituels. Paris : PUF, 1988. (Que Sais-Je ; 122) http://www.persee.fr/web/revues/home/prescript/article/assr_0335-5985_1989_num_67_2_1390_t1_0305_0000_2
 http://www.puf.com/Auteur:Jean_Maisonneuve
 
 
