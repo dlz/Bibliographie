@@ -36,6 +36,15 @@ Maisonneuve Jean. Les Rituels. Paris : PUF, 1988. (Que Sais-Je ; 122) http://www
 http://www.puf.com/Auteur:Jean_Maisonneuve
 
 
+唐木 順三. 日本人の心の歴史〈上〉. ちくま学芸文庫.
+
+唐木 順三. 日本人の心の歴史〈下〉. ちくま学芸文庫.
+
+
+中根 千枝. タテ社会の人間関係. 講談社. (講談社現代新書 ; 105) 
+
+
+
 ibridazione
 
 
