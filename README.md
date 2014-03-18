@@ -75,6 +75,9 @@ ELLUL Jacques. La technique ou l'enjeu du siècle. 1ère Edition. Paris : Armand
 ELLUL Jacques. La technique ou l'enjeu du siècle. 3e Edition. Paris : Economica, 2008. (Classiques des sciences sociales)
 
 
+personalizzazione
+
+ZYGMUNT Bauman. Liquid modernity. Cambridge : Polity Press, 2000.
 
 
 filmografia
