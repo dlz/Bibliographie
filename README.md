@@ -35,6 +35,7 @@ VIDAL Catherine. Hommes, femmes, avons-nous le même cerveau ? Paris : Pommier, 
 Maisonneuve Jean. Les Rituels. Paris : PUF, 1988. (Que Sais-Je ; 122) http://www.persee.fr/web/revues/home/prescript/article/assr_0335-5985_1989_num_67_2_1390_t1_0305_0000_2
 http://www.puf.com/Auteur:Jean_Maisonneuve
 
+KRISTEVA Julia, BECK Ulrich, POMIAN Krzysztof et al. Diversité et culture (Diversity and culture). Paris : Cultures France, 2007.
 
 唐木 順三. 日本人の心の歴史〈上〉. ちくま学芸文庫.
 
